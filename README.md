@@ -1,4 +1,4 @@
-Hi, I’m @damicd01 and love to learn new technologies as well as exploring new things all the time. I feel the happiest when I am absorbing and trying out new concepts so every day is a learning day
+Hi, I’m @danieled01 and love to learn new technologies as well as exploring new things all the time. I feel the happiest when I am absorbing and trying out new concepts so every day is a learning day
 
 Currently I am interested in the following:
 
